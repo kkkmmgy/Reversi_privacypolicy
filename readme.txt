@@ -1,0 +1,1 @@
+https://kkkmmgy.github.io/Reversi_privacypolicy/index.html
